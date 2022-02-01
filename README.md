@@ -1,1 +1,1 @@
-# group-6-Pet-Socials
+# group6-social-media
